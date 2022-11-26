@@ -1,1 +1,1 @@
-getting staring to code yeeeehhhhhh
+getting starting to code yeeeehhhhhh
